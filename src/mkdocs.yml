@@ -125,4 +125,4 @@ pages:
     - '107': 'wk8/107.md'
     - '108': 'wk8/108.md'
 
-theme: cinder 
+theme: material 
