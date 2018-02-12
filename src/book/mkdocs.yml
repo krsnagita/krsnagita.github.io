@@ -1,0 +1,23 @@
+site_name: Bhagavad-gita-1972
+theme: material
+pages:
+    - 'Front': 'index.md' 
+    - 'Introduction': 'intro.md'
+    - 'Chapter1': 'ch1.md'
+    - 'Chapter2': 'ch2.md'
+    - 'Chapter3': 'ch3.md'
+    - 'Chapter4': 'ch4.md'
+    - 'Chapter5': 'ch5.md'
+    - 'Chapter6': 'ch6.md'
+    - 'Chapter7': 'ch7.md'
+    - 'Chapter8': 'ch8.md'
+    - 'Chapter9': 'ch9.md'
+    - 'Chapter10': 'ch10.md'
+    - 'Chapter11': 'ch11.md'
+    - 'Chapter12': 'ch12.md'
+    - 'Chapter13': 'ch13.md'
+    - 'Chapter14': 'ch14.md'
+    - 'Chapter15': 'ch15.md'
+    - 'Chapter16': 'ch16.md'
+    - 'Chapter17': 'ch17.md'
+    - 'Chapter18': 'ch18.md'
