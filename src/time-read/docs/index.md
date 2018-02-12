@@ -1,4 +1,4 @@
-Read this book in 108 days. 
+Read this book in 54 days. 
 
 
 Enjoy!
