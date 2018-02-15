@@ -167,7 +167,7 @@ God, transcendental and original, and You are the unborn and all-pervading
 beauty. All the great sages like Nārada, Asita, Devala, and Vyāsa proclaim this
 of You, and now You Yourself are declaring it to me. O Kṛṣṇa, I totally accept
 as truth all that You have told me. Neither the gods nor demons, O Lord, know
-Thy personality.” (### . 10. 12–14).
+Thy personality.” (10. 12–14).
 
 After hearing Bhagavad-gītā from the Supreme Personality of Godhead, Arjuna
 accepted Kṛṣṇa as Paraṁ Brahma, the Supreme Brahman. Every living being is
@@ -686,7 +686,7 @@ prakṛtyā niyatāḥ svayā
 
 “Those whose minds are distorted by material desires surrender unto demigods and
 follow the particular rules and regulations of worship according to their own
-natures.” (### . 7.20) Here it is plainly said that those who are directed by lust
+natures.” (7.20) Here it is plainly said that those who are directed by lust
 worship the demigods and not the Supreme Lord Kṛṣṇa. When we mention the name
 Kṛṣṇa, we do not refer to any sectarian name. Kṛṣṇa means the highest pleasure,
 and it is confirmed that the Supreme Lord is the reservoir or storehouse of all
@@ -712,7 +712,7 @@ na tad bhāsayate sūryo na śaśāṅko na pāvakaḥ yad gatvā na nivartante 
 paramaṁ mama
 
 “That abode of Mine is not illumined by the sun or moon, nor by electricity. And
-anyone who reaches it never comes back to this material world.” (### . 15.6)
+anyone who reaches it never comes back to this material world.” (15.6)
 
 This verse gives a description of that eternal sky. Of course we have a material
 conception of the sky, and we think of it in relationship to the sun, moon,
@@ -776,7 +776,7 @@ taṁ veda sa veda-vit
 
 “The Supreme Lord said: There is a banyan tree which has its roots upward and
 its branches down, and the Vedic hymns are its leaves. One who knows this tree
-is the knower of the Vedas.” (### . 15.1) Here the material world is described as
+is the knower of the Vedas.” (15.1) Here the material world is described as
 a tree whose roots are upwards and branches are below. We have experience of a
 tree whose roots are upward: if one stands on the bank of a river or any
 reservoir of water, he can see that the trees reflected in the water are upside
@@ -834,7 +834,7 @@ anta-kāle ca mām eva smaran muktvā kalevaram yaḥ prayāti sa mad-bhāvam y�
 nāsty atra saṁśayaḥ
 
 “Anyone who quits his body, at the end of life, remembering Me, attains
-immediately to My nature; and there is no doubt of this.” (### . 8.5) One who
+immediately to My nature; and there is no doubt of this.” (8.5) One who
 thinks of Kṛṣṇa at the time of his death goes to Kṛṣṇa. One must remember the
 form of Kṛṣṇa; if he quits his body thinking of this form, he approaches the
 spiritual kingdom. Mad-bhāvaṁ refers to the supreme nature of the Supreme Being.
@@ -891,7 +891,7 @@ yaṁ yaṁ vāpi smaran bhāvaṁ tyajaty ante kalevaram taṁ tam evaiti kaunt
 tad-bhāva-bhāvitaḥ
 
 “In whatever condition one quits his present body, in his next life he will
-attain to that state of being without fail.” (### . 8.6) Material nature is a
+attain to that state of being without fail.” (8.6) Material nature is a
 display of one of the energies of the Supreme Lord. In the Viṣṇu Purāṇa the
 total energies of the Supreme Lord as Viṣṇu-śaktiḥ parā proktā, etc., are
 delineated. The Supreme Lord has diverse and innumerable energies which are
@@ -929,7 +929,7 @@ materialists engage their minds in reading newspapers, magazines and so many
 materialistic literatures, we must transfer our reading to these literatures
 which are given to us by Vyāsadeva; in that way it will be possible for us to
 remember the Supreme Lord at the time of death. That is the only way suggested
-by the Lord, and He guarantees the result: “There is no doubt.” (### . 8.7)
+by the Lord, and He guarantees the result: “There is no doubt.” (8.7)
 
 tasmāt sarveṣu kāleṣu mām anusmara yudhya ca mayy arpita-mano-buddhir mām
 evaiṣyasy asaṁśayaḥ
@@ -985,7 +985,7 @@ paśyāmi cañcalatvāt sthitiṁ sthirām
 
 “Arjuna said, O Madhusūdana, the system of yoga which you have summarized
 appears impractical and unendurable to me, for the mind is restless and
-unsteady.” (### . 6.33)
+unsteady.” (6.33)
 
 But the Lord says:
 
@@ -994,7 +994,7 @@ yuktatamo mataḥ
 
 “Of all yogīs, he who always abides in Me with great faith, worshiping Me in
 transcendental loving service, is most intimately united with Me in yoga, and is
-the highest of all.” (### . 6.47) So one who thinks of the Supreme Lord always is
+the highest of all.” (6.47) So one who thinks of the Supreme Lord always is
 the greatest yogī, the supermost jñānī, and the greatest devotee at the same
 time. The Lord further tells Arjuna that as a kṣatriya he cannot give up his
 fighting, but if Arjuna fights remembering Kṛṣṇa, then he will be able to
@@ -1033,7 +1033,7 @@ pārthānucintayan
 
 “By practicing this remembering, without being deviated, thinking ever of the
 Supreme Godhead, one is sure to achieve the planet of the Divine, the Supreme
-Personality, O son of Kuntī.” (### . 8.8)
+Personality, O son of Kuntī.” (8.8)
 
 This is not a very difficult process. However, one must learn it from an
 experienced person, from one who is already in the practice. The mind is always
@@ -1059,7 +1059,7 @@ prāpya bhajasva mām
 merchant, or one born in a low family, can yet approach the supreme destination.
 How much greater then are the brāhmaṇas, the righteous, the devotees, and
 saintly kings! In this miserable world, these are fixed in devotional service to
-the Lord.” (### . 9.32–33)
+the Lord.” (9.32–33)
 
 Human beings even in the lower statuses of life (a merchant, a woman or a
 laborer) can attain the Supreme. One does not need highly developed
@@ -1078,7 +1078,7 @@ nehābhikrama-nāśo ’sti pratyavāyo na vidyate svalpam apy asya dharmasya tr
 mahato bhayāt
 
 “In this endeavor there is no loss or diminution, and a little advancement on
-this path can protect one from the most dangerous type of fear.” (### . 2.40) If
+this path can protect one from the most dangerous type of fear.” (2.40) If
 one reads Bhagavad-gītā sincerely and seriously, then all of the reactions of
 his past misdeeds will not react upon him. In the last portion of Bhagavad-gītā,
 Lord Śrī Kṛṣṇa proclaims:
@@ -1088,7 +1088,7 @@ mokṣayiṣyāmi mā śucaḥ
 
 “Give up all varieties of religiousness, and just surrender unto Me; and in
 return I shall protect you from all sinful reactions. Therefore, you have
-nothing to fear.” (### . 18.66) Thus the Lord takes all responsibility for one who
+nothing to fear.” (18.66) Thus the Lord takes all responsibility for one who
 surrenders unto Him, and He indemnifies all the reactions of sin.
 
 One cleanses himself daily by taking a bath in water, but one who takes his bath
